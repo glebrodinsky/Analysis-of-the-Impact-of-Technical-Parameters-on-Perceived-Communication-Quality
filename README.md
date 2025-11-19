@@ -1,0 +1,1 @@
+# Analysis-of-the-Impact-of-Technical-Parameters-on-Perceived-Communication-Quality
